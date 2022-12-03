@@ -1,6 +1,6 @@
 [Cho thuê biệt thự, liền kề, shophouse The Manor Central Park Nguyễn Xiển](https://nhatminhland.net/gl/cho-thue-biet-thu-lien-ke-shophouse-the-manor-central-park-nguyen-xien.html "Cho thuê biệt thự, liền kề, shophouse The Manor Central Park Nguyễn Xiển") với giá cực kỳ hấp dẫn chỉ từ 20-30 triệu/tháng, để nhận giá thuê & loại hình căn hộ tại The Manor Central Park xiển tốt nhất vui lòng liên hệ: 0931377388
 
-####Giá thuê Shophouse
+#### Giá thuê Shophouse
 - Shophouse 75m²: Giá 20tr-30tr/tháng.
 - Shophouse 99m²: Giá 40tr/tháng.
 - Shophouse căn góc 120m² - 200m²: Giá từ 45tr/tháng - 60tr/tháng.
@@ -18,6 +18,6 @@ Phù hợp nhu cầu thuê để ở hoặc làm văn phòng công ty. Căn mớ
 
 Tất cả các căn đều đã hoàn thiện nội thất cơ bản. Những căn full đồ giá có thể sẽ cao hơn. Tiền thuê có thể thương lượng. Cam kết người thuê không phải chịu bất kỳ khoản phí phát sinh nào.
 
-Liên hệ ---------
+#### Liên hệ ---------
 Trần Thanh Hải - Chuyên gia BĐS cao cấp
 Điện thoại: 0931377388
